@@ -1,0 +1,1 @@
+Kodluyoruz 4. projemde şimdiye kadar kullandığım tüm komutları kullandım
